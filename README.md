@@ -1,3 +1,1 @@
-# skidplace.cf
-
 # gl clowns
